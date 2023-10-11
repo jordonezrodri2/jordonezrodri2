@@ -11,3 +11,10 @@ Here are some ideas to get you started:
 - 📫 How to reach me: email is the best way to contact me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I use to sneaker resell during high school
+
+Jason's Resume:
+Education:
+Northeastern University Khoury College of computer sciences 
+First-year undergraduate student
+125th class
+Expected graduation year 2027
